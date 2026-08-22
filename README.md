@@ -1,3 +1,3 @@
 # multibot
 
-JOIN MY SERVE; https://discord.gg/eMJKU869DG
+JOIN MY SERVER; https://discord.gg/eMJKU869DG
